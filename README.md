@@ -12,6 +12,9 @@ Hi! I’m looking for a like-minded flatmate to rent a 2-bedroom, 2-bathroom fla
 
 I work full-time in the City (9–5, office-based), keep a regular routine, and love a clean, peaceful home. In my free time, I enjoy travelling, staying active, and spending time with friends. I’m hoping to find someone respectful, tidy, and easy-going to share a home with long-term.
 
+
+<p><a href="flats.html">See the flats I’m currently considering →</a></p>
+
 *Contact me*
 
 📞 Phone / WhatsApp: 07840341901
